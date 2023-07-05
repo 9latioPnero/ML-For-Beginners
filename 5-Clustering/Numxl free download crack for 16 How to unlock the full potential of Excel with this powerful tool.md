@@ -1,0 +1,31 @@
+# Miftah Dar As Saadah: A Book of Exhortations and Advices by Ibn Qayyim al-Jawziyyah
+ 
+Miftah Dar As Saadah (The Key to the Abode of Happiness) is a book written by Imam Ibn Qayyim al-Jawziyyah (751H), a renowned scholar of Islam. The book is a collection of deep exhortations and advices for faith and good works based on the Words of Allah, Hadith, words of Ulema and stories of pious. It is a pearl in its field, as it covers various topics such as the purpose of life, the means of happiness, the virtues of patience, gratitude, repentance, sincerity, trust in Allah, love for Allah, remembrance of Allah, and many more.
+ 
+**Download Zip --->>> [https://t.co/OT8rV8Jc72](https://t.co/OT8rV8Jc72)**
+
+
+ 
+The book is available in different editions and languages. One edition is in one volume with the authentication of hadith[^1^]. Another edition is in three volumes with a good Tahqiq and deep annotations on the Hadiths[^1^]. The book can also be downloaded for free from the Internet Archive[^2^] or from other websites[^3^]. The book is highly recommended for anyone who wants to benefit from the wisdom and guidance of Imam Ibn Qayyim al-Jawziyyah.
+
+## About the Author: Imam Ibn Qayyim al-Jawziyyah
+ 
+Imam Ibn Qayyim al-Jawziyyah was born in Damascus in 691 AH/1292 CE. His full name was Muhammad ibn Abi Bakr ibn Ayyub ibn Sa'ad al-Zur'i al-Dimashqi al-Hanbali. He was known as Ibn Qayyim al-Jawziyyah because his father was the principal (qayyim) of the school of Jawziyyah, which also served as a court of law for the Hanbali judge of Damascus. He was also called Shams al-Din (the sun of religion) because of his brilliance and piety.
+ 
+Miftah Dar As Saadah book free download,  How to get Miftah Dar As Saadah pdf online,  Miftah Dar As Saadah by Imam Al Ghazali pdf,  Download Miftah Dar As Saadah in English pdf,  Miftah Dar As Saadah pdf Arabic version download,  Miftah Dar As Saadah ebook download for Kindle,  Miftah Dar As Saadah pdf summary and review,  Miftah Dar As Saadah pdf full text download,  Miftah Dar As Saadah pdf with commentary and notes,  Miftah Dar As Saadah pdf Urdu translation download,  Miftah Dar As Saadah pdf best quality download,  Miftah Dar As Saadah pdf free without registration,  Miftah Dar As Saadah pdf original edition download,  Miftah Dar As Saadah pdf with illustrations and diagrams,  Miftah Dar As Saadah pdf Malay translation download,  Miftah Dar As Saadah pdf read online for free,  Miftah Dar As Saadah pdf download link,  Miftah Dar As Saadah pdf Google Drive download,  Miftah Dar As Saadah pdf Dropbox download,  Miftah Dar As Saadah pdf Mega.nz download,  Miftah Dar As Saadah pdf torrent download,  Miftah Dar As Saadah pdf Scribd download,  Miftah Dar As Saadah pdf Z-Library download,  Miftah Dar As Saadah pdf Archive.org download,  Miftah Dar As Saadah pdf Libgen download,  Miftah Dar As Saadah pdf Flipbook download,  Miftah Dar As Saadah pdf Calameo download,  Miftah Dar As Saadah pdf Issuu download,  Miftah Dar As Saadah pdf Slideshare download,  Miftah Dar As Saadah pdf Yumpu download,  Miftah Dar As Saadah pdf Publitas download,  Miftah Dar As Saadah pdf Flipsnack download,  Miftah Dar As Saadah pdf Joomag download,  Miftah Dar As Saadah pdf Magzter download,  Miftah Dar As Saadah pdf Anyflip download,  Miftah Dar
+ 
+He was a devoted student and disciple of Imam Ibn Taymiyyah, whom he accompanied and assisted for 16 years until his death. He shared with him his trials and tribulations, including imprisonment and persecution at the hands of the authorities who opposed their views and teachings. He defended his teacher's legacy and edited most of his works. He also became a prominent scholar and teacher himself, who had many students and followers, such as Ibn Kathir, Ibn Rajab, and al-Dhahabi.
+ 
+He was an expert in various fields of Islamic sciences, such as Quranic exegesis, Hadith, jurisprudence, theology, spirituality, and history. He wrote more than 90 books on these topics, some of which are considered classics and masterpieces in Islamic literature. Among his most famous works are Zad al-Ma'ad (Provisions for the Hereafter), Al-Wabil al-Sayyib (The Gracious Rain), Madarij al-Salikin (The Stations of the Seekers), Ighathat al-Lahfan (The Relief of the Distressed), and Al-Fawa'id (The Benefits).
+ 
+He was also a pious and devout worshipper, who spent long hours in prayer, remembrance, and supplication. He was known for his humility, generosity, kindness, and sincerity. He never envied anyone, harmed anyone, or bore prejudice against anyone. He died in Damascus in 751 AH/1350 CE at the age of 60 and was buried next to his father at the Bab al-Saghir cemetery.
+
+## About the Book: Zad al-Ma'ad
+ 
+Zad al-Ma'ad (Provisions for the Hereafter) is one of the most famous and influential books written by Imam Ibn Qayyim al-Jawziyyah. It is a comprehensive guide to Islamic spirituality and ethics, covering various aspects of worship, morality, and conduct based on the life and teachings of Prophet Muhammad (peace be upon him) and his companions. The book is divided into five volumes, each containing several chapters on different topics.
+ 
+The first volume deals with the characteristics, manners, and virtues of Prophet Muhammad (peace be upon him), as well as his biography and miracles. The second volume discusses the rulings and etiquettes of prayer, fasting, zakat, hajj, umrah, and jihad. The third volume covers the issues of marriage, divorce, inheritance, trade, loans, oaths, vows, and other transactions. The fourth volume explains the principles of Islamic theology, such as the attributes of Allah, the angels, the jinn, the prophets, the books, the resurrection, the intercession, and the destiny. The fifth volume contains various supplications, invocations, remembrances, and ziyarahs for different occasions and situations.
+ 
+The book is a rich source of wisdom and guidance for Muslims who want to follow the example of Prophet Muhammad (peace be upon him) and his companions in their journey to Allah. It is also a valuable reference for scholars and students who want to learn more about the Quranic interpretation, Hadith sciences, jurisprudence, theology, and spirituality. The book has been translated into several languages and has been widely read and studied by Muslims throughout history.
+ 8cf37b1e13
+ 
